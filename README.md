@@ -12,3 +12,6 @@ If you don’t create content. They'll watch that content. The market will watch
 
 
 The economy is in the market. environment. Create opportunities.
+
+
+we need to. It doesn't look like it's needed for now. Just forget it for the time being. we need to. More important things. Target. Focus on forward execution.
