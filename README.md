@@ -19,13 +19,15 @@ we need to. It doesn't look like it's needed for now. Just forget it for the tim
 
 We need to learn more to make more. color. The line pattern moves. Architectural landmarks. move. A sense of ritual. Feel the power. building.
 
-
+There will be more and more. We're going to speed up and start.
 
 We need to know more. Build more. Made regionally. create. Region creates good products. Good brand. manufacture. brand. start.
 
 
 You want it now. Need it now. Accommodation in hotel. Amusement rides. gourmet food. Transportation. Travel flight. Best experience ever. Take pictures of the scenery facilities. Experiment with new clothes. A sense of ritual. Want now need now. Buy now to fulfill your service needs.
 
+
+This is not currently available on the market. Let's create. We are to be creators. Not to be a spectator.
 
 We started creating opportunities. economic environment. start. need. More is bigger. Let's get started. We need to start changing. accelerate.
 
