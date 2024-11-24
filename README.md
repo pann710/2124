@@ -4,7 +4,7 @@ Humans are used to it. See what people say. Listen to what others say. Not used 
 
 Sweet fruit. Energy drinks.
 
-
+We need to create a better environment. Opportunities are provided. train. Nurture talents. Ok the right way. teach.
 Manufacturing area. Impact content. impression. topic. discuss. share. Interesting. Start a conversation. Known.
 
 
